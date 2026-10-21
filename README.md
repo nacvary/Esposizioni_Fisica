@@ -1,1 +1,0 @@
-# Esposizioni_Fisica
